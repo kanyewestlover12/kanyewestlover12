@@ -10,5 +10,4 @@ fatos sobre mim!⬇️
 - fun fact: independente do meu humor, tenho uma música de MPB para cada situação 🫀
 - ela/dela ♀️
 -
--->
 ![](https://tenor.com/pt-BR/view/cute-gif-26223648)
