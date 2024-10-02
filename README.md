@@ -10,4 +10,4 @@ fatos sobre mim!⬇️
 - fun fact: independente do meu humor, tenho uma música de MPB para cada situação 🫀
 - ela/dela ♀️
 -
-![](https://tenor.com/pt-BR/view/sanrio-kuromi-cute-gif-27290113)
+![](https://tenor.com/pt-BR/view/sanrio-sanrio-characters-cinnamoroll-sanrio-character-gif-11113269910641082588)
