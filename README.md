@@ -9,6 +9,7 @@ fatos sobre mim!⬇️
 - minha cor favorita é rosa!🩷
 - fun fact: independente do meu humor, tenho uma música de MPB para cada situação 🫀
 - ela/dela ♀️
+
+entre em conato comigo: nonato.livia@escola.pr.gov.br 🌸
 -
 ![](https://media1.tenor.com/m/mjpEGmTMgNwAAAAd/sanrio-sanrio-characters.gif)
-entre em conato comigo: nonato.livia@escola.pr.gov.br 🌸
