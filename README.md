@@ -11,3 +11,4 @@ fatos sobre mim!⬇️
 - ela/dela ♀️
 -
 ![](https://media1.tenor.com/m/mjpEGmTMgNwAAAAd/sanrio-sanrio-characters.gif)
+entre em conato comigo: nonato.livia@escola.pr.gov.br 🌸
